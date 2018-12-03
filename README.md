@@ -14,3 +14,6 @@ look at (https://whenthenightcomes.itch.io/wtnc/devlog/49539/an-introduction)
 
   
     sketch lab
+
+  
+  https://www.quora.com/How-do-I-get-started-on-my-summer-homework-with-2-weeks-of-summer-left
