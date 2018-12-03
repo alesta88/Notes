@@ -9,5 +9,8 @@ https://itch.io/dashboard
 
 
 Profil na itch
-na https://www.patreon.com/WTNC
+na https://www.patreon.com/WTNC  
 look at (https://whenthenightcomes.itch.io/wtnc/devlog/49539/an-introduction)
+
+  
+    sketch lab
